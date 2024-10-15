@@ -1,0 +1,2 @@
+# tugasbapak
+EF234301_WebPro_MID_5025231025_Sadam Ali Rafsanjani_5025231098_Nicholas Abel Nathaniel_5025231129_Akmal Bobsaid
